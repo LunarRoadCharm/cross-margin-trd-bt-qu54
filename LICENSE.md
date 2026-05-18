@@ -1,4 +1,4 @@
-# 
+# elite bot de negociação OKX addons é o melhor bot de negociação OKX addons com sniper de liquidação e gestão de riscos. Seguro, confiável e otimizado para estratégias de
 
 
 
